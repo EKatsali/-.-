@@ -12,3 +12,4 @@ https://coggle.it/diagram/YCAo3sDXInYIjdVa/t/%CE%BC%CE%B9%CE%B1-%CF%80%CE%BF%CE%
 Ο πέμπτος ελεύθερος είναι αυτός που δημιούργησαν οι ίδιοι οι μαθητές!!!
 
 ΕΞΟΠΛΙΣΜΟΣ:
+https://makeymakey.com/ - 75€
