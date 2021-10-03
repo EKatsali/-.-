@@ -33,7 +33,7 @@
 
 https://youtu.be/1elQrup2eh8 
 
-https://coggle.it/diagram/YCAo3sDXInYIjdVa/t/%CE%BC%CE%B9%CE%B1-%CF%80%CE%BF%CE%B4%CE%B9%CE%AC-%CF%84%CE%B1%CE%BE%CE%B9%CE%B4%CE%B5%CF%8D%CE%B5%CE%B9-%CE%B3%CE%B9%CE%B1-%CF%84%CE%B7%CE%BD-%CE%B5%CE%BB%CE%B5%CF%85%CE%B8%CE%B5%CF%81%CE%B9%CE%B1
+https://coggle.it/diagram/YCAo3sDXInYIjdVa/t/%CE%BC%CE%B9%CE%B1-%CF%80%CE%BF%CE%B4%CE%B9%CE%AC-%CF%84%CE%B1%CE%BE%CE%B9%CE%B4%CE%B5%CF%8D%CE%B5%CE%B9-%CE%B3%CE%B9%CE%B1-%CF%84%CE%B7%CE%BD-%CE%B5%CE%BB%CE%B5%CF%85%CE%B8%CE%B5%CF%81%CE%B9%CE%B1!/172bf1a7d58240b33540ede9e911c2ac5d60242ea75ffe66ccf1d8fa50c65267
 
 https://youtu.be/NTf2MoBepuE (Οι δύο μασκοτ του έργου παρουσιάζουν έργα για την ελευθερία και ζητάνε από τους μαθητές να ζωγραφίσουν έργα ζωγραφικής για την ελευεθερία.)
 
