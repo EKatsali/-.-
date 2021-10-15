@@ -58,6 +58,21 @@
 
 Αθήνα: ΥΠ.Ε.Π.Θ. - Π.Ι., ΦΕΚ 304Β/13-03-2003.
 
+Collective, B. S. M., & Shaw, D. (2012). Makey Makey: Improvising tangible and nature-based user
+interfaces. Proceedings of the sixth international conference on tangible, embedded and embodied
+interaction (pp. 367–370)
+
+Deck, A., Moyer, A. ( 2018). Makey Makey Educator's Guide. e International Technology and Engineering Educators Association (ITEEA).Ανακτήθηκε από https://cdn.shopify.com/s/files/1/0162/8612/files/Makey_Makey_Educators_Guide.pdf?16481577170705338427
+
+Malecha, Elise, "The Role of Environmental Education in Steam Education" (2020). School of Education Student Capstone Projects. 463. https://digitalcommons.hamline.edu/hse_cp/463
+
+Rogers, Y., Paay, J., Brereton, M., Vaisutis, K. L., Marsden, G., & Vetere, F. (2014). Never too old: Engaging
+retired people inventing the future with MaKey MaKey, in Proceedings of the SIGCHI Conference on
+Human Factors in Computing Systems, Toronto, Ontario, Canada, pp. 3913–3922.
+
+Siemon, D., Plaumann, R., Regenberg, A., Yuan, Y., Liu, Z., & Robra-Bissantz, S. (2016). Tinkering for
+creativity: An experiment to utilize MaKey MaKey invention kit as group priming to enhance collabo-rative creativity.
+
 Περιγραφή εκπαιδευτικού σεναρίου
 
 Στην Α' φάση (1ΜΗΝΑΣ) τα παιδιά βλέπουν στην αυλή του σχολείου τους ένα κλουβί κρεμασμένο σε ένα δέντρο. Πηγαίνουν να το ανακλύψουν και να δούνε το περιεχομένο του. Είναι μία ποδιά ενός καλλιτέχνη με ένα σημείωμα που γράφει "ΕΛΕΥΕΘΡΟΙ 5". Κάνουν υποθέσεις για το ποιοι είναι "ΟΙ ΕΛΕΥΘΕΡΟΙ 5". Σιγά - σιγά αποκαλύπτονται μέσα από τα έργα τους. Οι ελεύθεροι 5 είναι οι μασκότ της τάξης: ένα πινέλο, μία φωτογραφική μηχανή, μία σπάτουλα, ένα μολύβι και ο πέμπτος είναι ο άγνωστος της παρέας που δε θα εμφανιστεί στους μαθητές. Οι υπόλοιποι τέσσερις ελεύθεροι εμφανίζονται σταδιακά αποκαλύπτοντας πρώτα στοιχεία σχετικά από την αντίστοιχη τέχνη τους τα οποία αφήνουν μέσα στις τσέπες της ποδιάς. Τα στοιχεία αυτά αποτυπώνουν την έννοια της ΕΛΕΥΘΕΡΙΑΣ. Είτε μέσα από πίνακες ζωγραφικής είτε μέσα από αγάλματα είτε από φωτογραφίες είτε από ποιήματα και λογοτεχνικά κείμενα και τα αφήνουν μέσα στις τσέπες της ποδιάς. Στη συνέχεια αποκαλύπτονται ένας - ένας οι ελεύθεροι 5. Το πινέλο με το όνομα «Ευγενία Ντελακρουά» από την τέχνη της ζωγραφικής, η φωτογραφική μηχανή με το όνομα «Νέλλη» από την τέχνη της φωτογραφίας, η σπάτουλα με το όνομα «Άιφελ» από την τέχνη της γλυπτικής και το μολύβι με το όνομα «Ρήγας» από τη λογοτεχνία.
