@@ -138,4 +138,5 @@ https://www.youtube.com/watch?v=YTKByycbHqg&t=7s&ab_channel=%CE%95%CE%A5%CE%93%C
 
 https://www.slideshare.net/EVGEKAT/5-250409644 - Το παρόν σενάριο έγινε συγγραφικό έργο από τα ίδια τα παιδιά και τυπώθηκε σε έντυπο παραμύθι για να μοιραστεί στα τοπικά βιβλιοπωλεία της περιοχής, αλλά και σε ηλεκτρονική μορφή. 
 
+Η ΠΑΡΟΥΣΙΑΣΗ ΤΟΥ ΕΡΓΟΥ ΥΠΑΡΧΕΙ ΣΤΗ ΣΕΛΙΔΑ: https://openedtech.ellak.gr/robotics2021/eleftheri-5-mia-podia-taxidevi-gia-tin-eleftheria/?preview_id=6517&preview_nonce=4368a7f475&_thumbnail_id=-1&preview=true
 
